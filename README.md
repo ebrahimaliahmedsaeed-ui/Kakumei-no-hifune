@@ -1,4 +1,4 @@
-# 📚 易卜拉欣·阿里·艾哈邁德·賽義德的思想文獻庫 (Male Awakening Digital Library)
+# 📚 易卜拉欣·阿里·艾哈邁德·賽義德的思想文獻庫 (Ibrahim Ali Ahmad Said Digital Library of Male Awakening)
 
 > **「我在暗夜中點燃星火，只願為後來者保留思想的火種。」**
 
